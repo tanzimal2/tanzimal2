@@ -38,6 +38,6 @@ I enjoy working at the intersection of **software, robotics, education, and prod
 ### 📫 Reach me
 
 - Facebook: [facebook.com/tanzimal2](https://facebook.com/tanzimal2)
-- Email: **tanzim.dibosh@bdosn.org**
-- Pronouns: **He/Him**
+- Email: **tanzim@cloudnumber24.org**
+- Pronouns: **He/Him/His**
 - ⚡ Fun fact: I'm still surprisingly shy. :P
