@@ -37,8 +37,8 @@ I enjoy working at the intersection of **software, robotics, education, and prod
 
 ### 📫 Reach me
 
+- 🌐 Portfolio: [mtanzim.me](https://mtanzim.me/)
 - Facebook: [facebook.com/tanzimal2](https://facebook.com/tanzimal2)
 - Email: **tanzim@cloudnumber24.org**
-- Learn more: mtanzim.me
 - Pronouns: **He/Him/His**
 - ⚡ Fun fact: I'm still surprisingly shy. :P
